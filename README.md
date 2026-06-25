@@ -1,5 +1,5 @@
 # Holda#$vili
 fjjo-[opijghv
- ghvijgm   kflvygfhiokf cjkfui
+ ghvijgm   kflvygfhiokf cjk
 FGMJ,K ;
 HJ
